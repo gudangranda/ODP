@@ -1,0 +1,1 @@
+Sebuah tantangan bagi siapapun. Jadikan Hari ini sebagai moment yang indah dan tepat untuk setiap kali merubah diri menjadi pribadi yang jauh lebih baik, lebih peduli, jauh dari korupsi, jauh dari iri hati dan dengki... dan tentu saja ... jauh lebih lebih berharga dimata Allah dan dan sesama.
